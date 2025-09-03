@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Hi, my name is Katelyn Crague. I am a freshman at the University of Memphis. Welcome to my blog.
